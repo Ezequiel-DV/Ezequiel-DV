@@ -14,5 +14,6 @@
 
 ## Contact:
 * If you are interested in my work and projects, you can contact me by e-mail: delvittoezequiel@gmail.com
+* Here is my LinkedIn profile: https://www.linkedin.com/in/ezequiel-del-vitto/
 
 Best regards!
